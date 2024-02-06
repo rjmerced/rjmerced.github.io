@@ -1,1 +1,0 @@
-# rjmerced.github.io
